@@ -1,1 +1,1 @@
-Here is the website https://moraputalapraveen.github.io/Hyderabad_metro_ticket/
+Here is the website https://mudasai25.github.io/Hyderabad_Metro_Tickets/
